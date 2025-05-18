@@ -1,0 +1,2 @@
+# Emailworm.vbs.horty
+AAAAAAAAAAAAAAAAAAAAAAAAA
